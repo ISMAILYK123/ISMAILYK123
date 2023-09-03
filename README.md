@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ISMAILYK 
 - 👀 I’m interested in Sports 
 - 🌱 I’m currently learning in Wockhardt global
-- school shebdra
+- school shendra
  
 - 📫 How to reach me I live in mill corner
 - Aurangabad 
